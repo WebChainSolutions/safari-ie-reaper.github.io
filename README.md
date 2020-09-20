@@ -38,3 +38,12 @@ Test at your risk here: https://jonnybanana.github.io/safari-ie-reaper.github.io
 Here instead i have put on the site the original version make by pwnsdx:</BR>
 https://jonnybanana.github.io/safari-ie-reaper.github.io/Original_Version
 
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
+
+
